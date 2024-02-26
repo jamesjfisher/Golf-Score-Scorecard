@@ -1,4 +1,4 @@
-# Golf Score:Scorecard Privacy Policy
+# Privacy Policy
 
 Last updated February 25, 2024
 
